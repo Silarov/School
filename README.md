@@ -1,4 +1,4 @@
-#Learning Objectives 
+Learning Objectives 
 
 describe the key events and outcomes of the 1905 Russian Revolution.  
 Due to failed attempts by the Russian imperial government to satisfy the people and their inability to do so lead to a rise in anti-government media and strikes starting in 1904. In an attempt to unite the country behind a victory, the tsar ordered war against Japan, failing and suffering multiple humiliating defeats. 
